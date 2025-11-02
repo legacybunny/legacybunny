@@ -9,6 +9,6 @@ i will make fun of people that i think are stupid or mean ok.?<br>
 big fan of my friends i love my friends<br><br>
 draw on my strawpage its awesome<br><br>
 ok thank you for reading thats very kind of you stay safe<br><br><br>
-<img src="[](https://file.garden/aP-62jJaqBvYEFAl/png/guest1337)"
+<img src=""
 	width=200
 	height=200></p>
